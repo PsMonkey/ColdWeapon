@@ -1,2 +1,5 @@
 * The Archaeology of Weapons: Arms and Armour from Prehistory to the Age of Chivalry
 	* [待確認] 歐洲兵器分類
+* Armies of the Ottoman Turks, 1300-1774, text by David Nicolle; colour plates by Angus McBride, London : Osprey Pub., 1983,
+* 圖說西洋甲冑武器事典
+	* 作者：三浦權利
