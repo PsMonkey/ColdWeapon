@@ -8,7 +8,7 @@
 ======
 
 * [PTT MartialArts 板](https://www.ptt.cc/bbs/MartialArts/index.html)
-
+* http://www.swordforum.com
 
 YouTube
 =======
