@@ -22,3 +22,4 @@
 ====
 
 * [Cult of the Jambiya @ Penn Museum](https://www.penn.museum/sites/expedition/cult-of-the-jambiya/)
+* [The Omani Dagger: A Symbol of Pride and History](https://theculturetrip.com/middle-east/oman/articles/the-omani-dagger-a-symbol-of-pride-and-history/)
