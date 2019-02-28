@@ -4,3 +4,4 @@
 	* 大馬士革刀 / 鋼
 * http://blog.udn.com/legionra/733473
 	* 翻譯：拿破崙時代的英軍騎兵及騎兵軍刀
+* https://www.tf.uni-kiel.de/matwis/amat/iss/index.html
