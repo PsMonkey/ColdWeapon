@@ -16,3 +16,9 @@
 [janbiya]: https://en.wikipedia.org/wiki/Janbiya
 [khanjar]: https://en.wikipedia.org/wiki/Khanjar
 [jile]: https://en.wikipedia.org/wiki/Jile
+
+
+文章
+====
+
+* [Cult of the Jambiya @ Penn Museum](https://www.penn.museum/sites/expedition/cult-of-the-jambiya/)
