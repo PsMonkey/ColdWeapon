@@ -21,4 +21,6 @@ YouTube
 ==========
 
 * [MEMAG（Medieval European Martial Arts Guild）](https://www.memag.net/)
-* [ARME（Association for Renaissance Martial Arts](http://www.thearma.org/)
+* [ARMA（Association for Renaissance Martial Arts）](http://www.thearma.org/)
+* Broadsword Academy Manitoba
+	（[FB](https://www.facebook.com/Broadsword-Academy-Manitoba-1598311073775771/) / [YouTube](https://www.youtube.com/channel/UCn9SaOfJEd-vljZ3d_C1Dqw)）
