@@ -20,6 +20,8 @@ YouTube
 主題性網站
 ==========
 
+* HEMA Alliance（[WebSite](https://www.hemaalliance.com/) / [FB](https://www.facebook.com/groups/HEMAAlliance/)）
+	* 就文獻資料面來說好像沒啥鳥用... :sleepy:
 * [MEMAG（Medieval European Martial Arts Guild）](https://www.memag.net/)
 * [ARMA（Association for Renaissance Martial Arts）](http://www.thearma.org/)
 * Broadsword Academy Manitoba
