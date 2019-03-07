@@ -7,3 +7,5 @@
 * https://www.tf.uni-kiel.de/matwis/amat/iss/index.html
 * https://www.jayfisher.com/Knife_Anatomy_Parts_Names_Definitions.htm
 	* 刀的各部位介紹與名詞定義
+* https://www.youtube.com/watch?v=XUL80bbJMOI
+	* 刀刃接上刀柄的幾種方式
