@@ -14,3 +14,6 @@
 * CAVALRY COMBAT AND THE SWORD Sword Design, Provision and Use in the British Cavalry of the Napoleonic Era
 * The British 1796 Pattern Light Cavalry Sword
 * Getting the Point: Some Functional Aspects of the 1796 British Heavy Cavalry Sword
+* D. A. Kinsley @ Lulu
+	* [Swordsmen of the British Empire](http://www.lulu.com/shop/d-a-kinsley/swordsmen-of-the-british-empire/ebook/product-21147604.html)
+	* [BRITISH SWORD FIGHTING 1600-1945](http://www.lulu.com/shop/d-a-kinsley/british-sword-fighting-1600-1945/paperback/product-23826241.html)
