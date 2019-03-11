@@ -1,3 +1,14 @@
+握刀方式
+--------
+
+* [軍刀 @scholagladiatoria](https://www.youtube.com/watch?v=OvIFi1jitS0)
+* medieval longsword @scholagladiatoria [Part.1](https://www.youtube.com/watch?v=Q1_9ZhpzX-4) / [Part.2](https://www.youtube.com/watch?v=0t1h_fVutw4)
+
+
+
+尚未分類
+--------
+
 * https://www.ptt.cc/bbs/Warfare/M.1187280243.A.963.html
 	* 除了機能外，文化意含也影響了盔甲的設計
 * https://www.tf.uni-kiel.de/matwis/amat/def_en/kap_5/advanced/t5_1_1.html
@@ -8,4 +19,4 @@
 * https://www.jayfisher.com/Knife_Anatomy_Parts_Names_Definitions.htm
 	* 刀的各部位介紹與名詞定義
 * https://www.youtube.com/watch?v=XUL80bbJMOI
-	* 刀刃接上刀柄的幾種方式
+	* [scholagladiatoria] 刀刃接上刀柄的幾種方式
