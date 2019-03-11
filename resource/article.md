@@ -1,8 +1,14 @@
+刀柄
+----
+
+* [[scholagladiatoria] Different ways that sword hilts are attached to sword blades ](https://www.youtube.com/watch?v=XUL80bbJMOI)
+* [[scholagladiatoria] Longsword hilt length and context in historical fencing](https://www.youtube.com/watch?v=AdnIQljDw-g)
+
 握刀方式
 --------
 
-* [軍刀 @scholagladiatoria](https://www.youtube.com/watch?v=OvIFi1jitS0)
-* medieval longsword @scholagladiatoria [Part.1](https://www.youtube.com/watch?v=Q1_9ZhpzX-4) / [Part.2](https://www.youtube.com/watch?v=0t1h_fVutw4)
+* [[scholagladiatoria] 軍刀](https://www.youtube.com/watch?v=OvIFi1jitS0)
+* [scholagladiatoria] medieval longsword [Part.1](https://www.youtube.com/watch?v=Q1_9ZhpzX-4) / [Part.2](https://www.youtube.com/watch?v=0t1h_fVutw4)
 
 
 
@@ -18,5 +24,3 @@
 * https://www.tf.uni-kiel.de/matwis/amat/iss/index.html
 * https://www.jayfisher.com/Knife_Anatomy_Parts_Names_Definitions.htm
 	* 刀的各部位介紹與名詞定義
-* https://www.youtube.com/watch?v=XUL80bbJMOI
-	* [scholagladiatoria] 刀刃接上刀柄的幾種方式
