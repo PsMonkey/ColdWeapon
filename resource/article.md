@@ -5,6 +5,8 @@
 * [scholagladiatoria] Longsword hilt length and context in historical fencing
 	* [Part.1](https://www.youtube.com/watch?v=AdnIQljDw-g)
 	* [Part.2](https://www.youtube.com/watch?v=V6pPuhmcxKo)
+* [[scholagladiatoria] Hollow medieval sword pommels](https://www.youtube.com/watch?v=NaQPlBklhEk)
+
 
 握刀方式
 --------
