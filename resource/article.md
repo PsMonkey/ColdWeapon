@@ -1,18 +1,23 @@
 刀柄
 ----
 
-* [[scholagladiatoria] Different ways that sword hilts are attached to sword blades ](https://www.youtube.com/watch?v=XUL80bbJMOI)
-* [scholagladiatoria] Longsword hilt length and context in historical fencing
+### @scholagladiatoria ###
+
+* [Different ways that sword hilts are attached to sword blades ](https://www.youtube.com/watch?v=XUL80bbJMOI)
+* Longsword hilt length and context in historical fencing
 	* [Part.1](https://www.youtube.com/watch?v=AdnIQljDw-g)
 	* [Part.2](https://www.youtube.com/watch?v=V6pPuhmcxKo)
-* [[scholagladiatoria] Hollow medieval sword pommels](https://www.youtube.com/watch?v=NaQPlBklhEk)
+* [Hollow medieval sword pommels](https://www.youtube.com/watch?v=NaQPlBklhEk)
 
 
 握刀方式
 --------
 
-* [[scholagladiatoria] 軍刀](https://www.youtube.com/watch?v=OvIFi1jitS0)
-* [scholagladiatoria] medieval longsword
+### @scholagladiatoria ###
+
+* [Why protective hilts on swords change how you hold them](https://www.youtube.com/watch?v=K0Mxb1U9H_4)
+* [軍刀](https://www.youtube.com/watch?v=OvIFi1jitS0)
+* medieval longsword
 	* [Part.1](https://www.youtube.com/watch?v=Q1_9ZhpzX-4)
 	* [Part.2](https://www.youtube.com/watch?v=0t1h_fVutw4)
 
