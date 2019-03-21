@@ -4,6 +4,16 @@
 ### @scholagladiatoria ###
 
 * [Different ways that sword hilts are attached to sword blades ](https://www.youtube.com/watch?v=XUL80bbJMOI)
+	* 不同類型的劍，刃部與柄部有不同連接方式。
+		中世紀劍的 tang 長度長於柄部，因此會從柄部頂端突出，再以彎折、壓扁等方式固定於柄部。
+	* 日本劍 tang 通常寬扁，短於柄部，會有 2-3 個洞。
+		會有竹製樁（peg？）穿過，將 tang 固定於柄部內。
+		傳統日本劍的 tang 不會長於柄部。
+	* 有些歐洲劍固定 tang 的方式類似於 knife，是以刃部的兩片板將 tang 夾於中間，並以填滿孔洞方式固定。
+	* 許多亞洲劍、刀、大刀完全不用以上方式，而採黏合方式。
+		在柄部熱時，填滿類似焦油（tar？）之深色物質，再將 tang 塞進去固定，幾乎到達 pommel 部位。
+		時日久後膠開始會老化，導致柄部開始鬆動。
+		印度、東南亞部分地區、尼泊爾、中東地區都有此作法。
 * Longsword hilt length and context in historical fencing
 	* [Part.1](https://www.youtube.com/watch?v=AdnIQljDw-g)
 	* [Part.2](https://www.youtube.com/watch?v=V6pPuhmcxKo)
@@ -30,6 +40,9 @@ dagger
 
 * [Three types of popular medieval dagger](https://www.youtube.com/watch?v=71GQRVob6KY)
 * [Medieval dagger grips, defending against sword and blade length](https://www.youtube.com/watch?v=mToGc2RM3kA)
+	* 介紹如何以中世紀匕首抵擋劍的攻擊。
+		當匕首刃部與前臂等長，反手持拿匕首可用來遮蔽劍的攻勢，因而推論某些匕首刃部長度與人體前臂長度相關。
+		但並非所有匕首皆然。
 * [Edge & Flat in parrying Part.1](https://www.youtube.com/watch?v=ZeDFc2QQ-XU)
 
 
