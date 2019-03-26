@@ -66,3 +66,8 @@ dagger
 * [The regularity of sword use in history](https://www.youtube.com/watch?v=0_Afv2slSIs)
 * [Studying books for historical martial arts in Europe and Asia](https://www.youtube.com/watch?v=bWqsr8wzsYU)
 	* 下方留言區也有一些資訊
+* [Asian influence on antique British military swords](https://www.youtube.com/watch?v=Fng9BFgYGog)
+* [Curved blades and a special attack from horseback](https://www.youtube.com/watch?v=GX8Z1pMikes)
+* Point of balance on swords
+	* [No good or bad](https://www.youtube.com/watch?v=Y40snITLi6o)
+	* [No good or bad and do not confuse with weight](https://www.youtube.com/watch?v=L-fGjUUZV5g)
