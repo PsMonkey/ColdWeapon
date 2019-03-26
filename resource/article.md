@@ -3,7 +3,7 @@
 
 ### @scholagladiatoria ###
 
-* [Different ways that sword hilts are attached to sword blades ](https://www.youtube.com/watch?v=XUL80bbJMOI)
+* :accept: [Different ways that sword hilts are attached to sword blades ](https://www.youtube.com/watch?v=XUL80bbJMOI)
 	* 不同類型的劍，刃部與柄部有不同連接方式。
 		中世紀劍的 tang 長度長於柄部，因此會從柄部頂端突出，再以彎折、壓扁等方式固定於柄部。
 	* 日本劍 tang 通常寬扁，短於柄部，會有 2-3 個洞。
@@ -39,7 +39,7 @@ dagger
 ### @scholagladiatoria ###
 
 * [Three types of popular medieval dagger](https://www.youtube.com/watch?v=71GQRVob6KY)
-* [Medieval dagger grips, defending against sword and blade length](https://www.youtube.com/watch?v=mToGc2RM3kA)
+* :accept: [Medieval dagger grips, defending against sword and blade length](https://www.youtube.com/watch?v=mToGc2RM3kA)
 	* 介紹如何以中世紀匕首抵擋劍的攻擊。
 		當匕首刃部與前臂等長，反手持拿匕首可用來遮蔽劍的攻勢，因而推論某些匕首刃部長度與人體前臂長度相關。
 		但並非所有匕首皆然。
@@ -64,3 +64,5 @@ dagger
 
 * [Swords broke quite often - sword fighting/swordsmanship](https://www.youtube.com/watch?v=meln41VHxqs)
 * [The regularity of sword use in history](https://www.youtube.com/watch?v=0_Afv2slSIs)
+* [Studying books for historical martial arts in Europe and Asia](https://www.youtube.com/watch?v=bWqsr8wzsYU)
+	* 下方留言區也有一些資訊
