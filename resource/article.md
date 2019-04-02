@@ -71,3 +71,6 @@ dagger
 * Point of balance on swords
 	* [No good or bad](https://www.youtube.com/watch?v=Y40snITLi6o)
 	* [No good or bad and do not confuse with weight](https://www.youtube.com/watch?v=L-fGjUUZV5g)
+* [A couple of thoughts about bayonets](https://www.youtube.com/watch?v=2Nc7UNFN3bM)
+* [Problems with stats for weapon injuries in history](https://www.youtube.com/watch?v=6QaFSOta0Lw)
+
