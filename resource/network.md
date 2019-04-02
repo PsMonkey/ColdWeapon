@@ -26,4 +26,5 @@ YouTube
 * [ARMA（Association for Renaissance Martial Arts）](http://www.thearma.org/)
 * Broadsword Academy Manitoba
 	（[FB](https://www.facebook.com/Broadsword-Academy-Manitoba-1598311073775771/) / [YouTube](https://www.youtube.com/channel/UCn9SaOfJEd-vljZ3d_C1Dqw)）
-* [Chinese Longsword (Ancient Chinese Martial Arts Manuals)](https://www.chineselongsword.com/)
+* Chinese Longsword（[網站](https://www.chineselongsword.com/) / [YouTube](https://www.youtube.com/channel/UCvvThPMe_v3YmgPvqAPEoCg) / [FB](https://www.facebook.com/ChineseLongsword) )
+	* [Jack Chen YouTube](https://www.youtube.com/user/jackchn/)
