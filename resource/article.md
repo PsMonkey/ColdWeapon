@@ -67,6 +67,11 @@ dagger
 * [Studying books for historical martial arts in Europe and Asia](https://www.youtube.com/watch?v=bWqsr8wzsYU)
 	* 下方留言區也有一些資訊
 * [Asian influence on antique British military swords](https://www.youtube.com/watch?v=Fng9BFgYGog)
+	* 大英帝國於殖民時代接觸許多不同文化，影響到兵器的發展。
+	* 1800 年的英國步兵團會軍官雖配有標準規格的劍（spadroon），但許多人因為品味、喜好、實際戰鬥...... 等因素，會改用其他兵器，如騎兵使用的 sabre，因而產生許多非標準（non-regulation）劍。
+	* 在印度、非洲、阿富汗等地區，因較常需要近距離搏鬥，許多軍官會選擇較堅固、更有競爭力的兵器，例如印度 tulwar。
+	* [第 1 把劍](https://youtu.be/Fng9BFgYGog?t=198)刃部與 tulwar 明顯相似，柄部卻為英國標準長劍型制。
+	* [第 2 把劍](https://youtu.be/Fng9BFgYGog?t=219)年代較晚（約1810-1820），柄部是當時典型英國長劍型制（steer up hilt？），但刃部卻與前一把長劍相同，在造型、做工上與 tulwar 柄部相似。第 2 把劍刃上的 fuller(?)/groove 設計可減輕刃部重量並增強硬度；刃部上幾個間斷性長方型凹槽（fuller？）為印度/波斯地區長劍特徵。雖然此劍刃部有可能來自印度tulwar，但作者認為這把劍應該全屬英國作工，但未說明理由。
 * [Curved blades and a special attack from horseback](https://www.youtube.com/watch?v=GX8Z1pMikes)
 * Point of balance on swords
 	* [No good or bad](https://www.youtube.com/watch?v=Y40snITLi6o)
