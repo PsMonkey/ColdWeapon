@@ -28,3 +28,5 @@ YouTube
 	（[FB](https://www.facebook.com/Broadsword-Academy-Manitoba-1598311073775771/) / [YouTube](https://www.youtube.com/channel/UCn9SaOfJEd-vljZ3d_C1Dqw)）
 * Chinese Longsword（[網站](https://www.chineselongsword.com/) / [YouTube](https://www.youtube.com/channel/UCvvThPMe_v3YmgPvqAPEoCg) / [FB](https://www.facebook.com/ChineseLongsword) )
 	* [Jack Chen YouTube](https://www.youtube.com/user/jackchn/)
+* [Old Swords](https://oldswords.com/)
+	* 要註冊、且要付費才能看... :see_no_evil:
