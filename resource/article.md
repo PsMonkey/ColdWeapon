@@ -20,6 +20,10 @@
 * [Hollow medieval sword pommels](https://www.youtube.com/watch?v=NaQPlBklhEk)
 * [The British gothic-hilted infantry officer's swords of the 19th century](https://www.youtube.com/watch?v=3U9VZLMV-SA)
 
+--------
+
+* [Medieval Swords: Edge Vs Flat and Sword Hilt Design](https://www.youtube.com/watch?v=48Vd8C0iB7A)
+
 
 握刀方式
 --------
