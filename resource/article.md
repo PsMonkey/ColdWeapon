@@ -95,3 +95,4 @@ dagger
 --------
 
 * [Does Size Matter? Knife And Sword Size in Everyday Carrying](https://www.youtube.com/watch?v=QrkqJ69A0pg)
+* [Kukri vs Bowie - Two Iconic Knives Compared](https://www.youtube.com/watch?v=NHpwITXxaT8)
