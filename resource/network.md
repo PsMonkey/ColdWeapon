@@ -30,6 +30,8 @@ YouTube
 	* [Jack Chen YouTube](https://www.youtube.com/user/jackchn/)
 * [Old Swords](https://oldswords.com/)
 	* 要註冊、且要付費才能看... :see_no_evil:
+* [Mediaeval Sword Resource Site](http://www.vikingsword.com)
+	* 有討論區、還有一堆有點雜亂無章但是好像很有價值的 link
 
 
 潛在的資料來源
