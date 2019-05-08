@@ -4,7 +4,11 @@
 > ###### 備註 ######
 > 主要收錄有藏品檢索系統的博物館
 
+* [British Museum](https://www.britishmuseum.org/research/collection_online/search.aspx)
+* [Moscow Kremlin Museums](https://collectiononline.kreml.ru)
 * [Royal Armouries Museum](https://collections.royalarmouries.org)
+* [Royal Collection Trust](https://www.rct.uk/collection/)
+* [The Wallace Collection](https://wallacelive.wallacecollection.org/eMP/eMuseumPlus)
 
 
 專欄
@@ -18,6 +22,7 @@
 
 * [PTT MartialArts 板](https://www.ptt.cc/bbs/MartialArts/index.html)
 * http://www.swordforum.com
+* http://www.sword-site.com/
 
 
 YouTube
