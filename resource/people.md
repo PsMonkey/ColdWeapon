@@ -7,6 +7,8 @@
 	* [YouTube](https://www.youtube.com/user/scholagladiatoria)
 	* [網站](http://www.fioredeiliberi.org/)：有點古老，沒啥更新
 	* [Patreon](https://www.patreon.com/scholagladiatoria)：不確定是啥 O.o
+* Robert Hales
+	* [網站](https://roberthales.co.uk/)：目前只是在賣一本書
 * Runjeet Singh
 	* [網站](http://www.runjeetsingh.com)
 	* [FB](https://www.facebook.com/RunjeetSinghLimited/)
