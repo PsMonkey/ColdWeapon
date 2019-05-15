@@ -6,6 +6,7 @@
 
 * [British Museum](https://www.britishmuseum.org/research/collection_online/search.aspx)
 * [Harvard Art Museums](https://www.harvardartmuseums.org/collections)
+* [MFA](https://www.mfa.org/collections/search)
 * [Moscow Kremlin Museums](https://collectiononline.kreml.ru)
 * [Royal Armouries Museum](https://collections.royalarmouries.org)
 * [Royal Collection Trust](https://www.rct.uk/collection/)
