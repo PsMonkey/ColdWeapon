@@ -5,6 +5,7 @@
 > 主要收錄有藏品檢索系統的博物館
 
 * [British Museum](https://www.britishmuseum.org/research/collection_online/search.aspx)
+* [Harvard Art Museums](https://www.harvardartmuseums.org/collections)
 * [Moscow Kremlin Museums](https://collectiononline.kreml.ru)
 * [Royal Armouries Museum](https://collections.royalarmouries.org)
 * [Royal Collection Trust](https://www.rct.uk/collection/)
