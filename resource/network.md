@@ -6,6 +6,8 @@
 
 * [British Museum](https://www.britishmuseum.org/research/collection_online/search.aspx)
 * [Harvard Art Museums](https://www.harvardartmuseums.org/collections)
+* [KHM](https://www.khm.at/en/objectdb/)
+	* 必須用德文搜尋，搜尋結果也是德文...... :scream:
 * [MFA](https://www.mfa.org/collections/search)
 * [Moscow Kremlin Museums](https://collectiononline.kreml.ru)
 * [Royal Armouries Museum](https://collections.royalarmouries.org)
