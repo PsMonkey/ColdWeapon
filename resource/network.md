@@ -24,6 +24,7 @@
 討論區
 ======
 
+* [Gentleman's Military Interest Club](http://gmic.co.uk/forum/287-military-hardware/)
 * [PTT MartialArts 板](https://www.ptt.cc/bbs/MartialArts/index.html)
 * http://www.swordforum.com
 * http://www.sword-site.com/
@@ -59,6 +60,7 @@ YouTube
 > 照片以及文字描述都要有博物館水準的才會收錄
 
 * [shastardhari](https://www.shastardhari.com)
+* [Forde Military Antiques](https://www.fordemilitaryantiques.com)
 
 
 潛在的資料來源
