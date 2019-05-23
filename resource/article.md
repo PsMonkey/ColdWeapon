@@ -97,3 +97,4 @@ dagger
 * [Does Size Matter? Knife And Sword Size in Everyday Carrying](https://www.youtube.com/watch?v=QrkqJ69A0pg)
 * [Kukri vs Bowie - Two Iconic Knives Compared](https://www.youtube.com/watch?v=NHpwITXxaT8)
 * [The Kukri DID NOT come from the Falcata or Kopis](https://www.youtube.com/watch?v=ykdAFTEHxKk)
+* [Persian & Arab Sword - Shamshir or Saif](https://www.youtube.com/watch?v=8xZpnF2F55o)
