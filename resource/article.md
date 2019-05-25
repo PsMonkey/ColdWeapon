@@ -63,6 +63,7 @@ dagger
 * https://www.tf.uni-kiel.de/matwis/amat/iss/index.html
 * https://www.jayfisher.com/Knife_Anatomy_Parts_Names_Definitions.htm
 	* 刀的各部位介紹與名詞定義
+* [The Science of Swords: The Sound of Approaching Doom](https://blogs.scientificamerican.com/assignment-impossible/the-science-of-swords-the-sound-of-approaching-doom)
 
 
 ### @scholagladiatoria ###
