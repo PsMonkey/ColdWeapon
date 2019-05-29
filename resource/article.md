@@ -100,3 +100,5 @@ dagger
 * [The Kukri DID NOT come from the Falcata or Kopis](https://www.youtube.com/watch?v=ykdAFTEHxKk)
 * [Persian & Arab Sword - Shamshir or Saif](https://www.youtube.com/watch?v=8xZpnF2F55o)
 * [Scottish Highland Officer's Dirk - A 74th Regiment Example & Historical Origin](https://www.youtube.com/watch?v=Uh3K4uAA390)
+* [The South American Gaucho Knife](https://www.youtube.com/watch?v=TNHQ1FHzAGI)
+* [Indian Daggers - Katar, Bichwa and Khanjar. With Matt Easton at Chiswick Auctions](https://www.youtube.com/watch?v=DMMnrnWZpD0)
