@@ -102,3 +102,4 @@ dagger
 * [Scottish Highland Officer's Dirk - A 74th Regiment Example & Historical Origin](https://www.youtube.com/watch?v=Uh3K4uAA390)
 * [The South American Gaucho Knife](https://www.youtube.com/watch?v=TNHQ1FHzAGI)
 * [Indian Daggers - Katar, Bichwa and Khanjar. With Matt Easton at Chiswick Auctions](https://www.youtube.com/watch?v=DMMnrnWZpD0)
+* [Medieval Eating Knives Compared to Daggers and CONTEXT](https://www.youtube.com/watch?v=YAiQPQ7pPR4)
