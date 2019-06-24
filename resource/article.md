@@ -20,6 +20,7 @@
 * [Hollow medieval sword pommels](https://www.youtube.com/watch?v=NaQPlBklhEk)
 * [The British gothic-hilted infantry officer's swords of the 19th century](https://www.youtube.com/watch?v=3U9VZLMV-SA)
 * [The projections on Indian sword pommels](https://www.youtube.com/watch?v=d92iCDIgcyw)
+* [Full Width Tang Knives & Swords: Are They Better?](https://www.youtube.com/watch?v=UEFDDPP0rJU)
 
 --------
 
