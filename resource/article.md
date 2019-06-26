@@ -106,3 +106,4 @@ dagger
 * [Medieval Eating Knives Compared to Daggers and CONTEXT](https://www.youtube.com/watch?v=YAiQPQ7pPR4)
 * [Medieval Daggers and Knives Related to Social Status](https://www.youtube.com/watch?v=n10ZIoae0b8)
 * [Curved swords and how to cut with them - kilij, shamshir, tulwar, sabre](https://www.youtube.com/watch?v=qfhC_c2Zbh0)
+* [Names of Medieval Sword Parts](https://www.youtube.com/watch?v=72fPo1F0Jic)
