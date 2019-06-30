@@ -13,6 +13,7 @@
 ====
 
 * [THE BRITISH AND THE TULWAR](https://www.fordemilitaryantiques.com/articles/2019/5/15/the-british-and-the-tulwar)
+	（[中文版](http://blog.psmonkey.org/2019/05/tulwar.html)）
 
 
 視頻
@@ -64,6 +65,6 @@ scholagladiatoria (YouTube)
 
 
 * [Using the point with very curved swords - eg. sabres and tulwars](https://www.youtube.com/watch?v=_2O7zw1Rn40)
-
+* [When The Indian 'Tulwar' Sword Is Not Curved](https://www.youtube.com/watch?v=Mg85gAJOnh4)
 
 [D. A. Kinsley]: http://www.lulu.com/shop/search.ep?contributorId=1214845
