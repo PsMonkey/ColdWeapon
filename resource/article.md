@@ -148,3 +148,5 @@ dagger
 * [Medieval Daggers and Knives Related to Social Status](https://www.youtube.com/watch?v=n10ZIoae0b8)
 * [Curved swords and how to cut with them - kilij, shamshir, tulwar, sabre](https://www.youtube.com/watch?v=qfhC_c2Zbh0)
 * [Names of Medieval Sword Parts](https://www.youtube.com/watch?v=72fPo1F0Jic)
+* [Wilkinson Sword Research Nightmare](https://www.youtube.com/watch?v=MTVaSACc5qI)
+	* 似乎在對一把印度（生產）劍作斷代
