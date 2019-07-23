@@ -64,6 +64,7 @@
 
 * [Medieval Swords: Edge Vs Flat and Sword Hilt Design](https://www.youtube.com/watch?v=48Vd8C0iB7A)
 * [Full Width Tang Knives & Swords: Are They Better?](https://www.youtube.com/watch?v=UEFDDPP0rJU)
+* [Leather Covered Sword Hilt Antique British Sabre](https://www.youtube.com/watch?v=VyXmX71MDjg)
 
 
 握刀方式
