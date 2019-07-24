@@ -60,8 +60,15 @@ YouTube
 > ###### 備註 ######
 > 照片以及文字描述都要有博物館水準的才會收錄
 
-* [shastardhari](https://www.shastardhari.com)
+* [Deccan Arts](http://deccanarts.com/)
 * [Forde Military Antiques](https://www.fordemilitaryantiques.com)
+* [shastardhari](https://www.shastardhari.com)
+
+
+出版商
+======
+
+* [Kashi House](https://www.kashihouse.com/)
 
 
 潛在的資料來源
