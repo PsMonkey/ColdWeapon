@@ -107,6 +107,8 @@ dagger
 * [The Science of Swords: The Sound of Approaching Doom](https://blogs.scientificamerican.com/assignment-impossible/the-science-of-swords-the-sound-of-approaching-doom)
 * [Kill Discs on Indian Blades](https://www.fordemilitaryantiques.com/articles/2019/6/21/kill-discs-on-indian-blades)
 * [Indian Sword Blade Types](https://www.fordemilitaryantiques.com/articles/2019/7/12/a-guide-to-indian-sword-blade-types)
+* [Anand Karaj](http://maharajaswords.com/anand-karaj/)
+	* Sikh 結婚儀式上配戴劍的......？（不確定）
 
 
 ### @scholagladiatoria ###
