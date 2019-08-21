@@ -155,3 +155,4 @@ dagger
 	* 似乎在對一把印度（生產）劍作斷代
 * [Antique French Sword Sizes Compared](https://www.youtube.com/watch?v=Jh0xdhk7gJU)
 * [Cavalry Cutlass? A Rare Type of Royal Navy Sword](https://www.youtube.com/watch?v=WK3nO0db8io)
+* [Why Did Some Infantry Soldiers Carry Short Swords in the Gunpowder Age? Pioneer Short Swords](https://www.youtube.com/watch?v=D5CnCzS-P9o)
