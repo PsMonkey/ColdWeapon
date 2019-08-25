@@ -156,3 +156,4 @@ dagger
 * [Antique French Sword Sizes Compared](https://www.youtube.com/watch?v=Jh0xdhk7gJU)
 * [Cavalry Cutlass? A Rare Type of Royal Navy Sword](https://www.youtube.com/watch?v=WK3nO0db8io)
 * [Why Did Some Infantry Soldiers Carry Short Swords in the Gunpowder Age? Pioneer Short Swords](https://www.youtube.com/watch?v=D5CnCzS-P9o)
+* [French Egyptian Sword with British History - Tel el Kebir 1882](https://www.youtube.com/watch?v=vUcoiUJjNw0)
