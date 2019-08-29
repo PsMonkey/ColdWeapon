@@ -157,3 +157,4 @@ dagger
 * [Cavalry Cutlass? A Rare Type of Royal Navy Sword](https://www.youtube.com/watch?v=WK3nO0db8io)
 * [Why Did Some Infantry Soldiers Carry Short Swords in the Gunpowder Age? Pioneer Short Swords](https://www.youtube.com/watch?v=D5CnCzS-P9o)
 * [French Egyptian Sword with British History - Tel el Kebir 1882](https://www.youtube.com/watch?v=vUcoiUJjNw0)
+* [Scottish Highland Field Officer's Sword & A New Website!](https://www.youtube.com/watch?v=JL_I6uPEmI8)
