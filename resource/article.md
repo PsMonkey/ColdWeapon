@@ -158,3 +158,4 @@ dagger
 * [Why Did Some Infantry Soldiers Carry Short Swords in the Gunpowder Age? Pioneer Short Swords](https://www.youtube.com/watch?v=D5CnCzS-P9o)
 * [French Egyptian Sword with British History - Tel el Kebir 1882](https://www.youtube.com/watch?v=vUcoiUJjNw0)
 * [Scottish Highland Field Officer's Sword & A New Website!](https://www.youtube.com/watch?v=JL_I6uPEmI8)
+* [Sword/Sabre Hilt Liners & My Personal Sword](https://www.youtube.com/watch?v=r8B3nEpaAw4)
