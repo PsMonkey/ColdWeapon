@@ -28,6 +28,7 @@
 * [PTT MartialArts 板](https://www.ptt.cc/bbs/MartialArts/index.html)
 * http://www.swordforum.com
 * http://www.sword-site.com/
+* [The Seax Files](https://www.facebook.com/groups/767422583312753/)
 
 
 YouTube
