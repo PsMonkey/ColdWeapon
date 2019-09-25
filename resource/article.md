@@ -159,3 +159,7 @@ dagger
 * [French Egyptian Sword with British History - Tel el Kebir 1882](https://www.youtube.com/watch?v=vUcoiUJjNw0)
 * [Scottish Highland Field Officer's Sword & A New Website!](https://www.youtube.com/watch?v=JL_I6uPEmI8)
 * [Sword/Sabre Hilt Liners & My Personal Sword](https://www.youtube.com/watch?v=r8B3nEpaAw4)
+* Something Modern Sword & Knife Makers Get Wrong：
+	* 鍛造方面的議題
+	* [part.1](https://www.youtube.com/watch?v=HT0vg1pZQsY)
+	* [part.2](https://www.youtube.com/watch?v=EYdpr4mtAug)
