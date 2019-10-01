@@ -111,6 +111,17 @@ dagger
 	* Sikh 結婚儀式上配戴劍的......？（不確定）
 
 
+### @PraveenMohan ###
+
+基本上是旅遊頻道，偶爾會冒出兵器相關視頻。
+
+* [Ancient Scissor Knife (Katar) - Weird Weapons of India](https://www.youtube.com/watch?v=hVnYiAYuBV8)
+* [Scariest Ancient Weapon Ever? Man Catcher aka Sasumata](https://www.youtube.com/watch?v=QmEW30MzV4A)
+* [Strange History of Chakra / Chakram - Ancient Weapon of India](https://www.youtube.com/watch?v=QInUkELKlBc)
+* [Oldest Weapon in the World? Madu / Maduvu - Capable of Attack and Defense](https://www.youtube.com/watch?v=jKY8nBaorkY)
+* [Secret Weapon of Indian Kings - Bagh Nakh aka Tiger Claws](https://www.youtube.com/watch?v=RArKLkbJ9SQ)
+
+
 ### @scholagladiatoria ###
 
 * [Swords broke quite often - sword fighting/swordsmanship](https://www.youtube.com/watch?v=meln41VHxqs)
