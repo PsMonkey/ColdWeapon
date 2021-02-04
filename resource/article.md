@@ -109,6 +109,7 @@ dagger
 * [Indian Sword Blade Types](https://www.fordemilitaryantiques.com/articles/2019/7/12/a-guide-to-indian-sword-blade-types)
 * [Anand Karaj](http://maharajaswords.com/anand-karaj/)
 	* Sikh 結婚儀式上配戴劍的......？（不確定）
+* https://www.youtube.com/watch?v=jVlanmPu_qM
 
 
 ### @PraveenMohan ###
