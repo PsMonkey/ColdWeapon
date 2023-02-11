@@ -175,3 +175,66 @@ dagger
 	* 鍛造方面的議題
 	* [part.1](https://www.youtube.com/watch?v=HT0vg1pZQsY)
 	* [part.2](https://www.youtube.com/watch?v=EYdpr4mtAug)
+
+----------------
+
+
+https://www.hk01.com/%E6%AD%A6%E5%82%99%E5%BF%97/125733/%E9%9F%93%E5%9C%8B%E5%88%80-vs-%E6%97%A5%E6%9C%AC%E5%88%80-%E4%BA%94%E5%A4%A7%E4%B8%8D%E5%90%8C%E4%B9%8B%E8%99%95
+
+https://www.hk01.com/%E6%AD%A6%E5%82%99%E5%BF%97/174905/silat-kali-%E5%B8%AD%E6%8B%89-%E8%A5%BF%E6%8B%89-%E5%85%AD%E7%A8%AE%E5%B8%B8%E8%A6%8B%E7%9A%84%E8%8F%B2%E5%BE%8B%E8%B3%93%E5%8F%8A%E5%8D%B0%E5%B0%BC%E5%85%B5%E5%99%A8%E8%88%87%E7%B5%84%E5%90%88
+
+
+# Chakram
+
+https://www.hk01.com/%E6%AD%A6%E5%82%99%E5%BF%97/103029/%E5%8D%B0%E5%BA%A6%E5%82%B3%E7%B5%B1%E5%85%B5%E5%99%A8-%E4%B8%89-chakram-%E7%92%B0%E5%88%83
+
+
+# Jambiya
+https://www.hk01.com/%E6%AD%A6%E5%82%99%E5%BF%97/267524/%E9%9B%99%E5%88%83%E5%BD%8E%E5%8C%95%E9%A6%96-%E9%98%BF%E6%8B%89%E4%BC%AF%E7%9A%84%E6%A6%AE%E8%80%80-%E4%B8%AD%E6%9D%B1%E5%9C%8B%E7%8E%8B%E4%B9%9F%E9%85%8D%E6%88%B4%E7%9A%84%E5%B0%8F%E5%88%80#media_id=2174541
+
+
+# Katar
+
+https://www.hk01.com/%E6%AD%A6%E5%82%99%E5%BF%97/96900/%E5%8D%B0%E5%BA%A6%E5%82%B3%E7%B5%B1%E5%85%B5%E5%99%A8-%E4%BA%8C-katar-kattari-katara
+
+https://www.youtube.com/watch?v=hVnYiAYuBV8
+
+https://www.youtube.com/watch?v=y_G6sjaf_oE&t=217
+對打的部份直接看下面那個就可以了
+
+https://www.youtube.com/watch?v=K8JDnMcFzVU
+
+  
+# Keris
+
+https://www.hk01.com/%E6%AD%A6%E5%82%99%E5%BF%97/149052/%E5%85%B5%E5%99%A8-%E6%B3%A2%E6%B5%AA%E5%BD%A2%E9%A6%AC%E4%BE%86%E7%9F%AD%E5%8A%8D-keris
+
+
+# Kopis
+
+https://www.hk01.com/%E6%AD%A6%E5%82%99%E5%BF%97/247778/kopis-falcata-%E5%8F%A4%E5%B8%8C%E8%87%98%E5%A3%AB%E5%85%B5%E7%9A%84%E5%8F%8D%E6%9B%B2%E5%88%80-%E8%B7%9F%E8%91%97%E5%90%8D%E7%9A%84%E5%BA%AB%E5%85%8B%E5%8A%9B%E5%BD%8E%E5%88%80%E7%9B%B8%E4%BC%BC
+
+
+# Krabi
+
+https://www.hk01.com/%E6%AD%A6%E5%82%99%E5%BF%97/107175/%E6%B3%B0%E5%9C%8B%E5%88%80-krabi-krabong-%E6%B3%B0%E5%9C%8B%E5%82%B3%E7%B5%B1%E5%85%B5%E5%99%A8%E6%AD%A6%E8%A1%93
+
+
+# Shashka
+
+https://www.hk01.com/%E6%AD%A6%E5%82%99%E5%BF%97/142385/%E5%93%A5%E8%96%A9%E5%85%8B%E6%B0%91%E6%97%8F%E7%9A%84%E5%82%B3%E7%B5%B1%E5%85%B5%E5%99%A8-%E6%81%B0%E8%A5%BF%E5%85%8B%E9%A6%AC%E5%88%80
+
+
+# Shotel
+
+https://www.hk01.com/%E6%AD%A6%E5%82%99%E5%BF%97/231996/dark-souls-shotel-%E5%9F%83%E5%A1%9E%E4%BF%84%E6%AF%94%E4%BA%9E%E9%89%A4%E5%88%80-%E9%9D%9E%E6%B4%B2%E5%82%B3%E7%B5%B1%E9%90%AE%E5%88%80%E5%BD%A2%E5%85%B5%E5%99%A8
+
+
+# Silat
+
+https://www.hk01.com/%E6%AD%A6%E5%82%99%E5%BF%97/96862/%E8%A8%AA%E5%95%8F-silat-%E8%99%8E%E7%88%AA%E5%88%80
+
+
+# 書籍資源
+
+《The Archaeology of Weapons: Arms and Armour from Prehistory to the Age of Chivalry》
